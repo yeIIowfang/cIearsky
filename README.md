@@ -1,1 +1,1 @@
-![wow](https://i.pinimg.com/564x/68/fa/c8/68fac83a6550a933dd3d1104c8a5c826.jpg)
+![wow](https://i.pinimg.com/564x/68/fa/c8/68fac83a6550a933dd3d1104c8a5c826.jpg) ![wow](https://media.discordapp.net/attachments/1244115669088473098/1244919501997342761/Untitled196_20240528024534.png?ex=6656dd22&is=66558ba2&hm=f072670d74f38a5922529441ee918f3ed7a324e1b36fe09bc473458e40d9031e&=&format=webp&quality=lossless&width=895&height=546) flowerboy headcanons?????
