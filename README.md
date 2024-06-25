@@ -2,6 +2,7 @@
 ![wow](https://i.pinimg.com/564x/da/b4/ec/dab4ecce330f892037af5f5d5cdd8fda.jpg)
 warning for th following images below 
 ![wow](https://media.discordapp.net/attachments/1244115669088473098/1254952882982092931/Screen_Shot_2024-06-24_at_8.14.13_PM.png?ex=667b5d73&is=667a0bf3&hm=5b77ab6f837457d372255e3478a89ed454ee7490f0b98422fbaeedbfcf07f1e6&=&format=webp&quality=lossless&width=657&height=607)
+![](https://media.discordapp.net/attachments/1244115669088473098/1254946353000222753/IMG_5443.png?ex=667c001e&is=667aae9e&hm=61cd25f3cbab9288b86bb82a48e4e4c76484d1cf0fd6b829a151d078d90526d7&=&format=webp&quality=lossless&width=614&height=546)
 ![](https://media.discordapp.net/attachments/1244115669088473098/1254952305309122672/Screen_Shot_2024-06-24_at_8.12.20_PM.png?ex=667b5ce9&is=667a0b69&hm=2293f0985e15be10308c547031cece39c992276d2ed961b00d11a50771f93090&=&format=webp&quality=lossless&width=730&height=607)
 ![](https://media.discordapp.net/attachments/1244115669088473098/1254946336449630228/IMG_5444.png?ex=667b575a&is=667a05da&hm=ce290014818fd78a0908c5b21d4e00e48ba1a77d24d65e421a82e52fcc89ca7c&=&format=webp&quality=lossless&width=454&height=381)
 ![](https://media.discordapp.net/attachments/1244115669088473098/1254946256149549076/IMG_5448.png?ex=667b5747&is=667a05c7&hm=bafa66de7a9230f43edeeba28eddf0cf9920050cbb671fa4ead119c4f81760dd&=&format=webp&quality=lossless&width=443&height=536)
