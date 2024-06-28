@@ -10,3 +10,4 @@ warning for th following images below
 ![](https://media.discordapp.net/attachments/1244115669088473098/1254946326869835778/IMG_5447.png?ex=667b5758&is=667a05d8&hm=f9d4ef0753787fbf3d5c34614ba0e6a3d347866b5f007e53dcfd06ae6d999673&=&format=webp&quality=lossless&width=599&height=285)
 ![](https://media.discordapp.net/attachments/1244115669088473098/1254946360998891601/IMG_5440.png?ex=667b5760&is=667a05e0&hm=fd21ccbb9a6335fd955aa5e45a7a8606883b843053f159ea32f953592d4334f0&=&format=webp&quality=lossless&width=656&height=481)
 ![image](https://github.com/cIearsky/cIearsky/assets/153591507/ccd82d40-1b95-43d6-a31e-1cc5523733b3)
+![](https://camo.githubusercontent.com/6b1abb8b1c8aaa69625dba7c1a7bd4f2beb87a5d81e9ed9ef644502e1f96f5d8/68747470733a2f2f66696c65732e636174626f782e6d6f652f6e776a7764612e706e67)
